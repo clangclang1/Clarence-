@@ -1,2 +1,3 @@
 #Clarence
-- Hi I'm Clarence 👋
+- Hi, I'm Clarence Enovidad 👋
+- BSIS student
